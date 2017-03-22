@@ -1,2 +1,2 @@
 # ryanchiera.com
-my bullshit website
+my lame website
